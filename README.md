@@ -1,3 +1,19 @@
 <div align=center>
 
-![totem schmoove](https://github.com/user-attachments/assets/22b5e1bf-5de9-44c9-87f8-8cbd5ee0d141)
+![tumblr_047dd9502540f819a4d687288016150c_2294b2fc_1280](https://github.com/user-attachments/assets/460fd902-7dbd-4112-9df7-b71bd7481e4c)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

@@ -1,7 +1,9 @@
 <div align=center>
 
-Hello.
+yoyo ball
 
-Usually chilling in the Alan Becker area. Yeah.
+usually chilling in the Alan Becker area
+
+just imagine a cool image here cause i couldn't upload files
 
 </div>

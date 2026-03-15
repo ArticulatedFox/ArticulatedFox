@@ -1,13 +1,7 @@
 <div align=center>
 
-yoyo ball
+ yoyo ball
 
-Previously booosfer
+  Previously booosfer -  usually chilling in the Alan Becker area -  freely interact, Im friendly
 
-Usually chilling in the Alan Becker area
-
-just imagine a cool image here cause i couldn't upload files
-
- <a href="https://pronouns.cc/@fydll">pronouns</a> ― <a href="https://lalala.atabook.org/">atabook</a> 
-
-</div>
+   <a href="https://pronouns.cc/@fydll">pronouns</a> ― <a href="https://lalala.atabook.org/">atabook</a> 
